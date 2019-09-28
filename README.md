@@ -1,2 +1,0 @@
-# Abinash-DO
-Tutorial purpose
